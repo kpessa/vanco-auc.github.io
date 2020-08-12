@@ -1,1 +1,0 @@
-# vanco-auc.github.io
